@@ -11,8 +11,7 @@ Puchatek: Krew I Miód 2 2024 Cały film online, strumieniowanie filmów w najle
 
 Oglądaj Puchatek: Krew I Miód 2 ➥ https://weflix.cloud/movie/1079485/winnie-the-pooh-blood-and-honey-2.html?github
 
-Kiedy na plaży w Trójmieście zostaje znalezione ciało dziewczynki, prokurator współpracuje z matką ofiary w żarliwym poszukiwaniu prawdy. Trójmiejska plaża staje się miejscem dramatycznych odkryć, gdy morze wyrzuca na brzeg ciało młodej dziewczyny. Niezwykłe okaleczenie ofiary wskazuje na morderstwo. Śledztwem kieruje ambitny i nieustępliwy prokurator Leopold Bilski. W śledztwo zaangażowana jest także matka ofiary, sędzia Helena Bogucka. Wszystkie tropy prowadzą do jednego z nadmorskich klubów, który okazuje się mieć związek z morderstwem kobiety sprzed 15 lat. Z informacji zebranych w trakcie śledztwa i ukrywanych przez lata dowodów powoli wyłania się ciemne oblicze przestępczego Trójmiasta. Odkrycia Bilskiego i Boguckiej zaczynają być bardzo niewygodne dla miejscowej policji.
-
+Nie chcąc dłużej żyć w cieniu, Kubuś Puchatek, Prosiaczek, Sowa i Tygrysek wyruszają z walką do miasta Ashdown, pozostawiając po sobie krwawy ślad śmierci i chaosu. „Głęboko w 30-akrowym lesie narasta niszczycielski gniew, gdy Kubuś Puchatek, Prosiaczek, Sowa i Tygrysek znajdują swój dom, a ich życie jest zagrożone po tym, jak Christopher Robin ujawnił ich istnienie. Nie chcąc dłużej żyć w cieniu grupa postanawia przenieść walkę do miasta Ashdown, domu Christophera Robina, pozostawiając po sobie krwawy ślad śmierci i chaosu. Winnie i jego dzicy przyjaciele pokażą wszystkim, że są bardziej zabójczy, silniejsi i mądrzejsi niż ktokolwiek inny mogli sobie wyobrazić i zemścić się na Christopherze Robinie raz na zawsze.”
 Data premiery: 21 grudnia 2024 (Polska)
 
 Reżyser: Jason Satham
